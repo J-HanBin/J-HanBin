@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @J-HanBin
-- 👀 I’m interested in street dance especially B-boy, Hiphop, House
+- 👀 I’m interested in street dance especially B-boy, Hiphop, House and Calisthenics
 - 🌱 I’m currently learning java, AI, Energy, Electricity
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
